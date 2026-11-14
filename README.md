@@ -1,1 +1,0 @@
-# seocond repo
